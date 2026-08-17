@@ -5,5 +5,29 @@ Currently I am going fully into coding, I want to make my code have impact, I wa
 
 My favorite movie now is SpiderMan: Brand New Day. While it is a new movie, I thought it was great because my favorite superhero was always SpiderMan and when this movie drop I really feel like it emphasized the emotions of being SpiderMan while also being Peter Parker which I liked. It showed a theme of how putting your work first and trying to make it your whole life, shunning your personal life out and the consequences of that. So I really liked how it showed that theme because that's something I experience a lot with school where I try to make it my whole life and miss out in my personal social life. As you can probably tell I am a **huge** Marvel fan. Some of my other favorite movies are <u>Avengers: Infinity War</u> and <u> Iron Man </u>.
 
+Sincerley,
+            ***Navneet Singh***
+
+
+Here is my spotify playlist that I listen to, I recently created this: 
+[Playlist](https://open.spotify.com/playlist/37zGJoPzFwh7uH1AyD875J?si=aXJJDIeCT5OxHlzpcgbvrg&utm_source=copy-link&pi=1RZoyu5BTwCpf)
+
+
+
+
+Here is my image collage:
+![This is the Cross!](ChristianCross.jpg)
+![This is a dog!](dog.jpg)
+![This is my family I love!](family.jpg)
+![This is my favorite game!](ApexLegends.jpg)
+![This is one of my favorite artist's album cover](beabadoobeecover.jpg)
+![This is my favorite album cover from another one of my favorite artists!](DanielCaeserAlbum.jpg)
+![This is my favprote sport!](vb.jpg)
+![This is one of my favorite basketball players!](Legoat.jpg)
+![This is one of my favorite coding languages!](codin.jpg)
+![This is my favorite movie and superhero!](Spiderman.jpg)
+
+Thank you!
+
 
 
